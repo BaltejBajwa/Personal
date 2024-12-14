@@ -1,1 +1,1 @@
-This is a anamination for kamal
+This is an amination for kamal
